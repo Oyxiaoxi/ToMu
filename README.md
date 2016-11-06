@@ -1,7 +1,7 @@
 # ToMu
 Only The Programmer Can Read The Love Letter
 
-##情不知所起，一往情深...
+## 忠诚 责任 尊重 宽容 ...
 
 ```ToMu
 Loyal - Obligation - Valued - Excese - .Mu
