@@ -15,6 +15,37 @@ Loyal - Obligation - Valued - Excese - .Mu
 笺短情长，寸心难寄
 ```
 
+## 我还是很喜欢你
+
+```bash
+我还是很喜欢你，像星辰砸向大地，至死而已。
+I still like you very much Like the stars on erath Till death.
+
+我还是很喜欢你，像云漂泊九万里，不曾歇息。
+I still like you very much Drifting ninety thousang miles likes a cloud Never have a rest.
+
+我还是很喜欢你，像星辰奔波亿万年黑夜，不诉怨语。
+I still like you very much Billions of years of night like stars No Complaints.
+
+我还是很喜欢你，像臣民等待王朝复辟，遥遥无期。
+I still like you very much Drifthing ninety thosand miles like a cloud Never have a rest.
+
+我还是很喜欢你，像太阳升了落去，无论朝夕。
+I still like you very much Like the sun rises and sets Both day and night.
+
+我还是很喜欢你，像风走了八千里，不问归期。
+I still like you very much The wind Walk eight thousand miles Don't ask.
+
+我还是很喜欢你，像风吹在心里，酥酥靡靡。
+I still like you very much The wind blowing in my heart A crisp.
+
+我还是很喜欢你，像日光洒满天地，温柔惬意。
+I still like you versy much Like sunlight pouring through the sky Gentle and agreeable.
+
+我还是很喜欢你，像飞鸟眷恋海鱼，去留难定，不知所以。
+I still like you very much Like a Bird, a fish in love Not knowing why it is so.
+```
+
 ## 你是我这辈子唯一的迁就。
 ```swift
 for(int day = SOMEDAY;day < FOREVER;day++){
