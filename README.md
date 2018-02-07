@@ -13,6 +13,10 @@ Loyal - Obligation - Valued - Excese - .Mu
 你是我隔着距离也能感受的太阳。
 如有意，慕娉婷。
 笺短情长，寸心难寄
+I didn't forget it, I just put it in my heart and didn't want it to be mentioned. ​ ​​​​(“没有忘记，只是放在心里不愿被提及”。)
+I am waiting for your back, or I lose my heart. ​​ ​​("我在等，等你回头，或等我死心"。)
+倘若深情被辜负，余生尽予孤独又何妨。
+"Gathering and scattering is always impermanent."  ("聚散总是无常，人生别来无恙。")
 ```
 
 ## 我还是很喜欢你
