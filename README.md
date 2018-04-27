@@ -4,6 +4,8 @@ Only The Programmer Can Read The Love Letter
 ## 忠诚 责任 尊重 宽容 ...
 
 ```ToMu
+Even myself envied your position in my heart. ​​​​
+I don't love u anyMore ..
 Loyal - Obligation - Valued - Excese - .Mu
 ```
 
