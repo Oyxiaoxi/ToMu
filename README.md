@@ -4,8 +4,16 @@ Only The Programmer Can Read The Love Letter
 ## 忠诚 责任 尊重 宽容 ...
 
 ```ToMu
-Even myself envied your position in my heart. ​​​​
 I don't love u anyMore ..
+since when 
+Now just now
+I don't want to lie
+Can't tell the truth
+So It's over
+It's doesn't matter
+
+
+Even myself envied your position in my heart. ​​​​
 Loyal - Obligation - Valued - Excese - .Mu
 ```
 
