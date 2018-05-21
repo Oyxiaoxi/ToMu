@@ -2,8 +2,40 @@
 Only The Programmer Can Read The Love Letter
 
 ## 忠诚 责任 尊重 宽容 ...
+```ToMu
+I don't talk to you anymore, 
+It doesn't mean I don't miss you,
+Or I don't love you,
+It's because you make me feel like ,
+I was bothering you.
+
+I really wanna spend the rest of my life with you,
+But now, It's time to let go,
+I'd give you up forever.
+
+Sometimes when I say "I'm ok"
+I just want some one to look me in the eyes,
+hug me tight,
+and say,
+"I konw you're not".
+
+maybe,There's no power like it on this earth,
+No Treasure equal to its worth,
+The gift of a mother's love,
+Thank you for every sunlit day.
+
+From meet to leave, I own myself a lot, don't own you anything !!!
+Vanishing is easy,but love is not. Cherish it was we trundle along.
+```
+
 
 ```ToMu
+Afterword
+I have learnt how to love finally
+But too leat
+You have gone Long ago
+Disapperaring in the crowd
+
 I really don't know 
 How many more love stories I have left in me 
 But I want to you
