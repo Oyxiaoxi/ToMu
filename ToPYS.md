@@ -312,4 +312,19 @@ We need a Trainee,the old one became CEO。
 
 # 东方航空
 别让对话变成独白，别让梦想无法触及，别让承诺只剩等待。
+
+# 抖音
+Do you have a lighter?
+No. 
+How did you kindle my heart?
+
+Do you have a mao?
+No.
+So how can I get into your heart?
+
+Do you smell something burning?
+No.
+My heart is burning.
+
+who do you think you are! 你怎么不上天哩？
 ```
