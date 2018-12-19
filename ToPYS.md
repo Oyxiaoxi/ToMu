@@ -347,4 +347,10 @@ who do you think you are! 你怎么不上天哩？
 
 感谢爸妈 予我生命 
 感谢咱爸妈 予我完整的生命 
+
+Bold choices take you where you are supposed to be!
+你陪着我的时候，我没羡慕过任何人。
+喜欢这种东西，捂住嘴巴，也会从眼睛里跑出来。
+每一次你花的钱，都是在为你想要的世界投票。
+
 ```
